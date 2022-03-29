@@ -1,1 +1,0 @@
-Artemisia Sarteschi 829677
